@@ -15,6 +15,28 @@ Joining a theme camp is a good way to experience your first Burn. Even if you've
 
 參加主題營是體驗您的第一次 Burn 的好方法。 即使您從未去過 Burn，也請隨時給我們留言！
 
+### Food Camp Responsibilities 的職責
+
+Being a member of Food Camp means you camp with, travel with, and plan with Food Camp. 
+
+成為美食營的會員意味著您可以與美食營一起露營、旅行併計劃。
+
+At the Burn, Food Camp generally has a large kitchen area with space to cook and serve food. We put our tents quite far from this. If possible, we like to have a big lounging area. We usually have some gas stoves and an oven or two, and lots of table space for preparing food. 
+
+在 Burn，Food Camp 通常有一個很大的廚房區域，可以用來烹飪和提供食物。 我們把帳篷安置在離這裡很遠的地方。 如果可能的話，我們希望有一個大的休息區。 我們通常有一些燃氣灶和一兩個烤箱，以及大量的桌子空間來準備食物。
+
+Typically, all day, every day, there's a Food Camp member preparing food. There's no requirements for preparing food: Food Camp members just really like making food, so we're usually doing that. If you're a member of food camp, you don't need to know anything about preparing food, you just need to be willing to help out occassionally. 
+
+通常情況下，每天都有一名美食營成員在準備食物。 準備食物沒有任何要求：美食營成員真的很喜歡製作食物，所以我們通常會這樣做。 如果您是美食營的成員，您不需要了解任何有關準備食物的知識，您只需要願意偶爾幫忙即可。
+
+Other than helping with cooking, food camp members are expected to help plan, during the months leading up to the burn. We may meet a couple times to discuss our goals. 
+
+除了幫助做飯外，食品營成員還應該在火災發生前的幾個月裡幫助制定計劃。 我們可能會見面幾次來討論我們的目標。
+
+During the Burn, food camp members are also expected to help construct and deconstruct the camp, as well as keep the camp clean. If you aren't confident at cooking, one fo the best ways you can help is by doing dishes. There's always a lot of dishes to clean!
+
+在燃燒期間，食品營成員還應幫助建造和拆除營地，並保持營地清潔。 如果您對烹飪沒有信心，最好的幫助方法之一就是洗碗。 總是有很多盤子需要清洗！
+
 ### Info 信息
 
 #### What 什麼
@@ -44,3 +66,9 @@ Lantern Burn 2023 將於 10 月 7 日至 10 日舉行。
 #### Where 在哪裡
 
 Lantern Burn 2023 will be held in a mountain near Yilan.
+
+# Contact 接觸
+
+If you're interested in joining food camp, email caleb@calebjay.com 
+
+如果您有興趣參加美食營，請發送電子郵件 caleb@calebjay.com 
